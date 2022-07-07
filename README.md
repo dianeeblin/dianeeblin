@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @dianeeblin
 - 👀 I’m interested in getting shit done
 - 🌱 I’m currently learning this platform
-- 💞️ I’m looking to collaborate on entering tickets for jobs
+- 💞️ I’m looking to 
 - 📫 How to reach me -message me here
 
 <!---
